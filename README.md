@@ -12,3 +12,11 @@ Disclaimers
  < No im not distributing these for malicious purposes but for fun since I have no homework!!!
  < https://law.stackexchange.com/questions/16608/is-owning-leaked-databases-illegal-in-the-us
 ```
+
+Why isnt every domain here?
+------------
+
+```
+ < Not all domains have databreaches attached to them dumbfuck.
+ < Lazy
+```
